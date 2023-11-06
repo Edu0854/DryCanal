@@ -1,6 +1,5 @@
 
-![MicrosoftTeams-image-removebg-preview](https://github.com/Edu0854/DryCanal/assets/96387888/c85ceb9f-7467-4714-b1da-4c20ebf555bc)
-
+![MicrosoftTeams-image-removebg-preview](https://github.com/Edu0854/DryCanal/assets/96387888/b8543886-916f-4cae-b2ce-3be82fcb7a67)
 
 # Dry Canal
 
